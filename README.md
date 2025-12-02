@@ -90,6 +90,5 @@
 
 -   **Mail:** [ynkr129@gmail.com]
 -   **GitHub:** [https://github.com/YNKR129](https://github.com/YNKR129)
--   **Wantedly:** [https://www.wantedly.com/id/YNKR129](https://www.wantedly.com/id/YNKR129)
 
 ---
